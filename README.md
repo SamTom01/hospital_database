@@ -13,5 +13,5 @@
 
 
 ## Contact
-Created by [@Sam](sam645220@gmail.com) - feel free to contact me!
+Created by [@Sam Thomas](http://www.linkedin.com/in/sam~thomas) - feel free to contact me!
 
